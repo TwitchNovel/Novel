@@ -8,4 +8,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  Ishmael, distraught, turned to zir Lancelot de Bartholomew, his advisor on all things Antifa, and said "Go now. Get me my bean bag you hippie little kid, and tell those russian Gopniks to go get drunk! and bring some Kvass for me too." 
 
- 
+ "Righty-o 
