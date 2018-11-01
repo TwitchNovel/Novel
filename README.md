@@ -4,4 +4,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  “Why would you try to interrupt me?" \n 
 
- “I was speaking to my boy who killed our dreams by 
+ “I was speaking to my boy who killed our dreams by insulting 
