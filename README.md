@@ -10,4 +10,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  "Righty-o captain!" 
 
- With a lot of worry, Lancelot rushed from 
+ With a lot of worry, Lancelot rushed from the 
