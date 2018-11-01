@@ -1,2 +1,2 @@
 # Novel
-A long and 
+A long and hard 
