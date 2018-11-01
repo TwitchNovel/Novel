@@ -1,4 +1,0 @@
-# Twitch Writes a Novel
-
-
-
