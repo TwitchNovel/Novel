@@ -1,2 +1,2 @@
 # Novel
-A long and hard winter lay ahead of 
+A long and hard winter lay ahead of us. 
