@@ -1,2 +1,2 @@
 # Novel
-A long and hard 
+A long and hard winter 
