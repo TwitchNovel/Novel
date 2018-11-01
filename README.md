@@ -12,4 +12,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  With a lot of worry, Lancelot rushed from the room. He never was one to be brave when Ishmael is angry. 
 
- Old, still upset with Ishy decided to play 
+ Old, still upset with Ishy decided to play tagpro 
