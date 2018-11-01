@@ -1,2 +1,2 @@
 # Novel
-A long and hard winter lay ahead of us. Call me Ishmael 
+A long and hard winter lay ahead of us. Call me Ishmael Maynard 
