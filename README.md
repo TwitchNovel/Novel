@@ -1,2 +1,2 @@
 # Novel
-A long and hard winter lay 
+A long and hard winter lay ahead 
