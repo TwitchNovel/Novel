@@ -6,4 +6,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  “I was speaking to my boy who killed our dreams by insulting the king." Curses you incompetent fool! Off with your head! Burn the witch! 
 
- Ishmael, distraught, turned to zir Lancelot de Bartholomew, his advisor on all 
+ Ishmael, distraught, turned to zir Lancelot de Bartholomew, his advisor on all things 
