@@ -16,4 +16,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  On dark and stormy nights, Ishmael likes to fall asleep to the screams of needles scraping against the bones of dogs like banshees in an echo chamber. Old killed it in a very engaging game of ping pong! she drank cummies daily and ate SpiderMonkey BumJuice XoXoGossipGirl and goes to practice fortnite dances alone 
 
- With silence as his ally, Ishmael says "Attention all Twitch viewers 
+ With silence as his ally, Ishmael says "Attention all Twitch viewers, 
