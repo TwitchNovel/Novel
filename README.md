@@ -18,4 +18,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  With silence as his ally, Ishmael says "Attention all Twitch viewers, I have to tell you something important about Amazon Prime. Did Jeff tell you where the money goes? It funds a secret underground s..." Ishmael falls to the cold floor. Blood spewing from his neck. "Nothing personal, kid." Comes a rasping voice. In Ishmael's place stands Jeff. Appearing as if he had teleported behind Ishmael. <br> <div> <img src= ></div> <div style= class= ></div> <div /> <div /> "Nooooooo!" Old <h1> </h1> <span class="blinker"> screamed.</span> <h1>BUTTS</h1> <small>Fred come to bed</small> with the BezHOs 
 
- 
+ Fred 
