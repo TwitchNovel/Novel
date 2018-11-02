@@ -14,6 +14,6 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  Old, still upset with Ishy decided to play tagpro but he was really bad. Findadmagus, the greatest ball in all of Chord, totally juked his bally ass in every game! 
 
- On dark and stormy nights, Ishmael likes to fall asleep to the screams of needles scraping against the bones of dogs like banshees in an echo chamber. Old killed it in a very engaging game of ping pong! she drank cummies daily and ate SpiderMonkey BumJuice XoXoGossipGirl and goes to practice fortnite dances alone 
+ On dark and stormy nights, Ishmael likes to fall asleep to the screams of needles scraping against the bones of dogs like banshees in an echo chamber. Old killed it in a very engaging game of ping pong! she drank gummies daily and ate SpiderMonkey BumJuice XoXoGossipGirl and goes to practice fortnite dances alone 
 
- With silence as his ally, Ishmael says "Attention all Twitch viewers, I have to tell you something important about 
+ With silence as his ally, Ishmael says "Attention all Twitch viewers, I have to tell you something important about Amazon 
