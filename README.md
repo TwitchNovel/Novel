@@ -74,4 +74,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  Twenty percent skill 
 
- Fifteen percent concentrated power of 
+ Fifteen percent concentrated power of will 
