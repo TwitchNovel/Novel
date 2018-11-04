@@ -80,4 +80,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  Fifty percent pain 
 
- And a hundred percent 
+ And a hundred percent reason 
