@@ -93,3 +93,5 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
  Wow, this has really big conradkayiscool sauculentio. HOTEL;SAUCULENTIO 
 
  We later ate chairs and left the hotel. Communism strikes the island of Loompaland, and now all the edible panties belong to the People, comrade! And of course we opieop with love. The cat walked through a beautiful winter landscape. His paws were cold and wet and when the snow beneath his feet started moving he was thinking: "Is this the real life or is this just fantasy? Caught in a landslide, no escape from reality!" 
+
+ 
