@@ -92,4 +92,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  Wow, this has really big conradkayiscool sauculentio. HOTEL;SAUCULENTIO 
 
- We later ate chairs and left the 
+ We later ate chairs and left the hotel. 
