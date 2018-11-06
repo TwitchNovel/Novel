@@ -96,4 +96,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  
 
- mopplopmopplop is very good at sm64 and chess and really likes OpieOP. ChrisLink 
+ mopplopmopplop is very good at sm64 and chess and really likes OpieOP. ChrisLink is 
