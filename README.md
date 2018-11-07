@@ -96,4 +96,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  
 
- mopplopmopplop is very good at sm64 and chess and really likes OpieOP. ChrisLink is addicted to MiniK. He treats it like a drug and won't give you any no matter how nicely you ask. Focus focuses and rages very much. gay baby jail strikes back! so Meanwhile night has come to an end This hooker is dead and my mum wakes soon afterward my crocodile pulls out a revolver “you feeling lucky punk” he puts the barrel up to my temple and pulls the trigger I ..... pontificate my 
+ mopplopmopplop is very good at sm64 and chess and really likes OpieOP. ChrisLink is addicted to MiniK. He treats it like a drug and won't give you any no matter how nicely you ask. Focus focuses and rages very much. gay baby jail strikes back! so Meanwhile night has come to an end This hooker is dead and my mum wakes soon afterward my crocodile pulls out a revolver “you feeling lucky punk” he puts the barrel up to my temple and pulls the trigger I ..... pontificate my large 
