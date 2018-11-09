@@ -100,4 +100,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  One day, little Emile Heskey was stealing Darren Bent's World cup ,but BIG SLABHEAD MAGUIRE gave him a FUCKING SMACK. Ouch! That really vore is sin spaghetti crikey. 9/11 was an inside job was what uninformed conspiracy theorists thought. But if penis suck my vagina. sub to me on youtube FUCK smack weener butt. ATTENTION ALL SHADOWRUN GAMERS! Your chummers are in great danger, and they need your help to steal the data from Saeder-Krupp ; but to do this, they need a decker, and a couple of street samurai. To help them, all they need is your credstick password, the biometric fingerprint on the back, and your retina scan. But you gotta be quick, so that your chummers can secure the data and achieve the wiz payday! 
 
- gonna wanna subscribe to my bestie: voiceoverpete. STOP I said: boop boooooop boooooop — boooooop boooooop boooooop — boop boooooop boooooop. Which means wow! 
+ gonna wanna subscribe to my bestie: voiceoverpete. STOP I said: boop boooooop boooooop — boooooop boooooop boooooop — boop boooooop boooooop. Which means wow! In 
