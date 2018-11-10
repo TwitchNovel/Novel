@@ -146,10 +146,10 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  
 
- │┌─ 
+ 
 
- └┼┐ 
+ 
 
- ─┘│ 
+ 
 
- My father hate me EvilSTALKER Once 
+ My father hate me EvilSTALKER Once said 
