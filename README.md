@@ -152,4 +152,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  
 
- My father hate me EvilSTALKER Once said rigamaroll Hello d3adscene loves em hutzz 
+ My father hate me EvilSTALKER Once said rigamaroll Hello d3adscene loves em hutzz is 
