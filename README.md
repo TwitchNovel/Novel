@@ -158,4 +158,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  
 
- Urgh some people messed with my notebook while I was sleeping. Well ,let's go with a new beginning, I 
+ Urgh some people messed with my notebook while I was sleeping. Well ,let's go with a new beginning, I guess 
