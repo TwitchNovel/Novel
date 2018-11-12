@@ -162,4 +162,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  
 
- My name is Thomas the Great B Boi from hell, My Life Revolves Around Dank Memes, And I put the L On Jhon Wick In the Tilted 
+ My name is Thomas the Great B Boi from hell, My Life Revolves Around Dank Memes, And I put the L On Jhon Wick In the Tilted Towers. 
