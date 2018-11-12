@@ -168,4 +168,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  Suddenly a Voice Said," Attention All Fortnite Gamers, Jhon wick Needs Your help. He's Gunna Needs A Golden Scar And Sevral Chug Jugs. To get Him this he Needs the first 16 numbers and Date On your Mom's Credit Card. But you gotta Be Fast, So Jhon Wick can Acchive the Victory Royale." follow Virus_Vengeance twitch channel Also Thank tuckerboo42 for VoiceOverPete Refrance. 
 
- heck 0"burgers" subscribe to three dogs no 
+ heck 0"burgers" subscribe to three dogs no subscribe 
