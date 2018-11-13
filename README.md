@@ -172,4 +172,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  
 
- Chapter 2: The foogets my WE NEED TO SAVE RICHTHOFEN! the NUMBERS MASON worsened 420 popoo white nagger. hello people stop 
+ Chapter 2: The foogets my WE NEED TO SAVE RICHTHOFEN! the NUMBERS MASON worsened 420 popoo white nagger. hello people stop being 
