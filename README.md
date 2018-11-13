@@ -172,4 +172,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  
 
- Chapter 2: The foogets my WE NEED TO SAVE RICHTHOFEN! 
+ Chapter 2: The foogets my WE NEED TO SAVE RICHTHOFEN! the 
