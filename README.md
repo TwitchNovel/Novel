@@ -184,4 +184,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  
 
- gang gang big bob is top dog and is an big man Ashton Charwin 
+ gang gang big bob is top dog and is an big man Ashton Charwin touches 
