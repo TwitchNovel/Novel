@@ -177,3 +177,5 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
  "Welcome, one and all!" Retards are all killed unless you are either John Wick or Sans Undertale. But oh no! A new rule has been put in place that anyone with 
 
  LIGMA 
+
+ 
