@@ -174,4 +174,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  Chapter 2: The foogets my WE NEED TO SAVE RICHTHOFEN! the NUMBERS MASON worsened 420. 
 
- "Welcome, one and all!" Retards are all killed unless you are either John Wick or Sans Undertale. But oh no! A new rule has been put in place that 
+ "Welcome, one and all!" Retards are all killed unless you are either John Wick or Sans Undertale. But oh no! A new rule has been put in place that anyone 
