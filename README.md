@@ -192,4 +192,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  rola died in a fire rip full 
 
- This novel is the definition of cringe. The truth of the matter is that y'all suck a fat dick. Cocksuckers suck cock, what can I say? yeah dab this 
+ This novel is the definition of cringe. The truth of the matter is that y'all suck a fat dick. Cocksuckers suck cock, what can I say? yeah dab this is 
