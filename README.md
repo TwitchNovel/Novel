@@ -195,3 +195,5 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
  This novel is the definition of cringe. The truth of the matter is that y'all suck a fat dick. Cocksuckers suck cock, what can I say? yeah dab this is gay but no-homo. hello everyone. Hitler did nothing wrong! However Yegnaro wins Twitch! 
 
  
+
+ 
