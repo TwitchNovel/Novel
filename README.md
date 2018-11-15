@@ -192,4 +192,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  rola died in a fire rip full 
 
- This novel 
+ This novel is 
