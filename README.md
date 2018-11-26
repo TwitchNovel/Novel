@@ -230,4 +230,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  It's the story of me and my dragon ... 
 
- My first 
+ My first encounter 
