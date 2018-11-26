@@ -216,4 +216,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  
 
- This novel is weird 
+ This novel is weird because 
