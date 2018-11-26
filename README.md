@@ -224,4 +224,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  Hello 
 
- I will tell you a story ...Do you want to hear 
+ I will tell you a story ...Do you want to hear it? 
