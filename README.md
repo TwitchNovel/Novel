@@ -232,4 +232,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  My first encounter with him. 
 
- So let's begin... hi my ligma bofa deez nuts the. hoi i'M 
+ So let's begin... hi my ligma bofa deez nuts the. hoi i'M TeMmIE 
