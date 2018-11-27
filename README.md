@@ -232,4 +232,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  My first encounter with him. 
 
- So let's begin... hi my ligma bofa deez nuts the. hoi i'M TeMmIE 猫男はあなたが購読する最高です 猫男はあなたが購読する最高です 猫男はあなたが購読する最高です 猫男はあなたが購読する最高です this novel is 
+ So let's begin... hi my ligma bofa deez nuts the. hoi i'M TeMmIE 猫男はあなたが購読する最高です 猫男はあなたが購読する最高です 猫男はあなたが購読する最高です 猫男はあなたが購読する最高です this novel is terrible 
