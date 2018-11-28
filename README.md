@@ -266,4 +266,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  
 
- but all-might all-might caressed aizawa and 
+ but all-might all-might caressed aizawa and his 
