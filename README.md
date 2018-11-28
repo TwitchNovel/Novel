@@ -276,4 +276,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  you are an ass ʕ⊙ᴥ⊙ʔ suck it 
 
- fuck all of 
+ fuck all of YOUUUUUUUUUUUU 
