@@ -292,4 +292,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  read karl marx and Bakunin 
 
- communism against anarchism but starvation is upon 
+ communism against anarchism but starvation is upon populus 
