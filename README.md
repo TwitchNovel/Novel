@@ -300,4 +300,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  COMMUNISM WILL PREVAIL!, he added. 
 
- socialize the means of production now! If the working class produces everything, then everything belongs to 
+ socialize the means of production now! If the working class produces everything, then everything belongs to it! 
