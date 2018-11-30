@@ -298,4 +298,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  my PEWDIEPIE NOTTHEBEES ( yelled Logan Paul ) 
 
- COMMUNISM WILL PREVAIL!, he 
+ COMMUNISM WILL PREVAIL!, he added. 
