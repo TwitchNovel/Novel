@@ -306,4 +306,4 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
 
  The history of all hitherto existing society is the history of class struggles. 
 
- Freeman and slave, 
+ Freeman and slave, patrician 
