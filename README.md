@@ -303,3 +303,5 @@ A long and hard winter lay ahead of us. Call me Ishmael Maynard Keynes and kill 
  socialize the means of production now! If the working class produces everything, then everything belongs to it! ☭ ha ruff #ImSoEdgy 
 
  
+
+ 
